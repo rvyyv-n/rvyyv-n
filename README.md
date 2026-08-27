@@ -1,1 +1,2 @@
 ## hi lol
+discord: @rvyyvn
