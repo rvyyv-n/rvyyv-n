@@ -1,2 +1,2 @@
-## hi lol
+## sand
 discord: @rvyyvvn
