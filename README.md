@@ -2,11 +2,11 @@
 
 <div align="center">
 
-rvyyvvn
+rvyyvn
 
 <sub>·</sub>
 
-<sub>discord — @rvyyvn</sub>
+<sub>discord — @rvyyvvn</sub>
 
 </div>
 
